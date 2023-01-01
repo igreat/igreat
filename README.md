@@ -1,4 +1,4 @@
-I am Mujtaba, a programmer that loves exploring 🚀
+I'm Mujtaba, a programmer that loves exploring 🚀
 
 - 🖥️📏 **I'm an explorer in computer science and mathematics**, often challenging myself in those fields!
 - 🤖🧠🦾 **I'm an artificial intelligence (AI) enthusiast**, spending a large portion of my free time exploring the new advancements in AI and strengthening my fundamentals in the field. 
